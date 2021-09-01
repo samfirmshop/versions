@@ -1,10 +1,10 @@
-<h2>Samsung Firmwares SM-G973F(COA) G973FXXUCFUH3/G973FODXCFUH3/G973FXXUCFUH3</h2>
-Download the Samsung firmware for the ✅ <strong>Samsung Galaxy S10 </strong> ⭐ <strong>SM-G973F</strong> with product code <strong>COA</strong> <strong> from Romania</strong>. This firmware has version number PDA <strong>G973FXXUCFUH3</strong> and CSC G973FODXCFUH3. The operating system of this firmware is Android R , with build date 2021-08-31. Changelist <strong>22340597</strong>.
+<h2>Samsung Firmwares SM-G973F(DNL) G973FXXUCFUH3/G973FODXCFUH3/G973FXXUCFUH3</h2>
+Download the Samsung firmware for the ✅ <strong>Samsung Galaxy S10 </strong> ⭐ <strong>SM-G973F</strong> with product code <strong>DNL</strong> <strong> from Netherlands</strong>. This firmware has version number PDA <strong>G973FXXUCFUH3</strong> and CSC G973FODXCFUH3. The operating system of this firmware is Android R , with build date 2021-08-31. Changelist <strong>22340597</strong>.
 
 
-[Download Firmware Samsung Galaxy S10 SM-G973F](https://samfirm.shop/samsung/firmware/451024)
+[Download Firmware Samsung Galaxy S10 SM-G973F](https://samfirm.shop/samsung/firmware/451010)
 <h2>Summary description:</h2>
 <p>Samsung Galaxy S10 SM-G973F. Display diagonal: 15.5 cm (6.1"), Display resolution: 1440 x 3040 pixels, Display type: Dynamic AMOLED. Processor frequency: 2.7 GHz. RAM capacity: 8 GB, RAM type: LPDDR4X, Internal storage capacity: 128 GB. Rear camera resolution (numeric): 12 MP, Rear camera type: Triple camera. SIM card capability: Dual SIM. Operating system installed: Android 9.0. Battery capacity: 3400 mAh. Product colour: Blue. Weight: 157 g</p>
 
 
-[Download Firmware Samsung Galaxy S10 SM-G973F](https://samfirm.shop/samsung/firmware/451024)
+[Download Firmware Samsung Galaxy S10 SM-G973F](https://samfirm.shop/samsung/firmware/451010)
