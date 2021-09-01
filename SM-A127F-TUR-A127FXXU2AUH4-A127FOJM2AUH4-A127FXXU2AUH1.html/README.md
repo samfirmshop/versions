@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung SSP </strong> ⭐ <str
 
 [SM-A127F](https://samfirm.shop/samsung/model/SM-A127F)
 [A127FXXU2AUH4](https://samfirm.shop/samsung/pda/A127FXXU2AUH4)
-[Download Firmware Samsung SSP SM-A127F](https://samfirm.shop/samsung/firmware/451057)
+[Download Firmware Samsung SSP SM-A127F](https://samfirm.shop/samsung/firmware/451056)
