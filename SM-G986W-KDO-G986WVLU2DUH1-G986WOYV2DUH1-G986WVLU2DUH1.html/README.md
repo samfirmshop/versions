@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy S20+ 5G </stron
 
 [SM-G986W](https://samfirm.shop/samsung/model/SM-G986W)
 [G986WVLU2DUH1](https://samfirm.shop/samsung/pda/G986WVLU2DUH1)
-[Download Firmware Samsung Galaxy S20+ 5G SM-G986W](https://samfirm.shop/samsung/firmware/451821)
+[Download Firmware Samsung Galaxy S20+ 5G SM-G986W](https://samfirm.shop/samsung/firmware/451820)
