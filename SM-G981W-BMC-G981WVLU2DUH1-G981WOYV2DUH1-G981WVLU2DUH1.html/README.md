@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy S20 5G </strong
 
 [SM-G981W](https://samfirm.shop/samsung/model/SM-G981W)
 [G981WVLU2DUH1](https://samfirm.shop/samsung/pda/G981WVLU2DUH1)
-[Download Firmware Samsung Galaxy S20 5G SM-G981W](https://samfirm.shop/samsung/firmware/451813)
+[Download Firmware Samsung Galaxy S20 5G SM-G981W](https://samfirm.shop/samsung/firmware/451812)
