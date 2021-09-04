@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy A7 ⑧ </strong
 
 [SM-A750G](https://samfirm.shop/samsung/model/SM-A750G)
 [A750GUBU6CUG1](https://samfirm.shop/samsung/pda/A750GUBU6CUG1)
-[Download Firmware Samsung Galaxy A7 ⑧ SM-A750G](https://samfirm.shop/samsung/firmware/452089)
+[Download Firmware Samsung Galaxy A7 ⑧ SM-A750G](https://samfirm.shop/samsung/firmware/452088)
