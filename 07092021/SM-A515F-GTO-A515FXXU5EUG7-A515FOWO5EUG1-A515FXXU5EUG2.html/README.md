@@ -4,9 +4,9 @@ Download the Samsung firmware for the âœ… <strong>Samsung Galaxy A51 </strong> â
 
 [SM-A515F](https://samfirm.shop/samsung/model/SM-A515F)
 [A515FXXU5EUG7](https://samfirm.shop/samsung/pda/A515FXXU5EUG7)
-[Download Firmware Samsung Galaxy A51 SM-A515F](https://samfirm.shop/samsung/firmware/453327)
+[Download Firmware Samsung Galaxy A51 SM-A515F](https://samfirm.shop/samsung/firmware/453328)
 <h2>Summary description:</h2>
 <p>Samsung Galaxy A51 SM-A515F. Display diagonal: 16.5 cm (6.5"), Display resolution: 1080 x 2400 pixels, Display type: SAMOLED. Processor frequency: 2.3 GHz. Rear camera resolution (numeric): 48 MP, Rear camera type: Quad camera. SIM card capability: Dual SIM. Battery capacity: 4000 mAh. Product colour: Blue. Weight: 172 g</p>
 
 
-[Download Firmware Samsung Galaxy A51 SM-A515F](https://samfirm.shop/samsung/firmware/453327)
+[Download Firmware Samsung Galaxy A51 SM-A515F](https://samfirm.shop/samsung/firmware/453328)
