@@ -4,9 +4,9 @@ Download the Samsung firmware for the ✅ <strong>Samsung SSP </strong> ⭐ <str
 
 [SM-G998B](https://samfirm.shop/samsung/model/SM-G998B)
 [G998BXXS3AUHD](https://samfirm.shop/samsung/pda/G998BXXS3AUHD)
-[Download Firmware Samsung SSP SM-G998B](https://samfirm.shop/samsung/firmware/454925)
+[Download Firmware Samsung SSP SM-G998B](https://samfirm.shop/samsung/firmware/454923)
 <h2>Summary description:</h2>
 <p>Samsung Galaxy S21 Ultra 5G SM-G998B. Display diagonal: 17.3 cm (6.8"), Display resolution: 3200 x 1440 pixels, Display type: Dynamic AMOLED 2X. Processor frequency: 2.9 GHz, Processor family: Samsung Exynos. RAM capacity: 12 GB, Internal storage capacity: 256 GB. Rear camera resolution (numeric): 108 MP, Rear camera type: Quad camera. SIM card capability: Dual SIM. Operating system installed: Android 11. Battery capacity: 5000 mAh. Product colour: Black. Weight: 228 g</p>
 
 
-[Download Firmware Samsung SSP SM-G998B](https://samfirm.shop/samsung/firmware/454925)
+[Download Firmware Samsung SSP SM-G998B](https://samfirm.shop/samsung/firmware/454923)
