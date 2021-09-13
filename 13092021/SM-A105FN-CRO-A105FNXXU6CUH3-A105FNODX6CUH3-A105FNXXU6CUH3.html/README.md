@@ -4,4 +4,4 @@ Download the Samsung firmware for the âœ… <strong>Samsung Galaxy A10 </strong> â
 
 [SM-A105FN](https://samfirm.shop/samsung/model/SM-A105FN)
 [A105FNXXU6CUH3](https://samfirm.shop/samsung/pda/A105FNXXU6CUH3)
-[Download Firmware Samsung Galaxy A10 SM-A105FN](https://samfirm.shop/samsung/firmware/455169)
+[Download Firmware Samsung Galaxy A10 SM-A105FN](https://samfirm.shop/samsung/firmware/455168)
