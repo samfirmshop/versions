@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy Note9 </strong>
 
 [SM-N9600](https://samfirm.shop/samsung/model/SM-N9600)
 [N9600ZHS8FUH5](https://samfirm.shop/samsung/pda/N9600ZHS8FUH5)
-[Download Firmware Samsung Galaxy Note9 SM-N9600](https://samfirm.shop/samsung/firmware/455847)
+[Download Firmware Samsung Galaxy Note9 SM-N9600](https://samfirm.shop/samsung/firmware/455848)
