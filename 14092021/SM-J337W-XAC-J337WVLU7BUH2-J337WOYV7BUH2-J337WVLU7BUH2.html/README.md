@@ -4,4 +4,4 @@ Download the Samsung firmware for the âœ… <strong>Samsung Galaxy J3 </strong> â­
 
 [SM-J337W](https://samfirm.shop/samsung/model/SM-J337W)
 [J337WVLU7BUH2](https://samfirm.shop/samsung/pda/J337WVLU7BUH2)
-[Download Firmware Samsung Galaxy J3 SM-J337W](https://samfirm.shop/samsung/firmware/456275)
+[Download Firmware Samsung Galaxy J3 SM-J337W](https://samfirm.shop/samsung/firmware/456274)
