@@ -4,9 +4,9 @@ Download the Samsung firmware for the âœ… <strong>Samsung Galaxy J6 </strong> â­
 
 [SM-J600FN](https://samfirm.shop/samsung/model/SM-J600FN)
 [J600FNXXUACUH1](https://samfirm.shop/samsung/pda/J600FNXXUACUH1)
-[Download Firmware Samsung Galaxy J6 SM-J600FN](https://samfirm.shop/samsung/firmware/456404)
+[Download Firmware Samsung Galaxy J6 SM-J600FN](https://samfirm.shop/samsung/firmware/456403)
 <h2>Summary description:</h2>
 <p>Samsung Galaxy J6 SM-J600FN. Display diagonal: 14.2 cm (5.6"), Display resolution: 1480 x 720 pixels, Display type: SAMOLED. Processor frequency: 1.6 GHz. RAM capacity: 3 GB, Internal storage capacity: 32 GB. Rear camera resolution (numeric): 13 MP, Rear camera type: Single camera. SIM card capability: Single SIM. Battery capacity: 3000 mAh. Product colour: Gold. Weight: 154 g</p>
 
 
-[Download Firmware Samsung Galaxy J6 SM-J600FN](https://samfirm.shop/samsung/firmware/456404)
+[Download Firmware Samsung Galaxy J6 SM-J600FN](https://samfirm.shop/samsung/firmware/456403)
