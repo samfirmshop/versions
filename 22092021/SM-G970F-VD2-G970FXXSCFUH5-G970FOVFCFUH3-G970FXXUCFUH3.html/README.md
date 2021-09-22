@@ -4,9 +4,9 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy S10e </strong> 
 
 [SM-G970F](https://samfirm.shop/samsung/model/SM-G970F)
 [G970FXXSCFUH5](https://samfirm.shop/samsung/pda/G970FXXSCFUH5)
-[Download Firmware Samsung Galaxy S10e SM-G970F](https://samfirm.shop/samsung/firmware/457725)
+[Download Firmware Samsung Galaxy S10e SM-G970F](https://samfirm.shop/samsung/firmware/457726)
 <h2>Summary description:</h2>
 <p>Samsung Galaxy S10e SM-G970F. Display diagonal: 14.7 cm (5.8"), Display resolution: 1080 x 2280 pixels, Display type: Dynamic AMOLED. Processor frequency: 2.7 GHz, Processor family: Samsung Exynos. RAM capacity: 6 GB, RAM type: LPDDR4X, Internal storage capacity: 128 GB. Rear camera resolution (numeric): 12 MP, Rear camera type: Dual camera. Operating system installed: Android 9.0. Battery capacity: 3100 mAh. Product colour: Yellow. Weight: 150 g</p>
 
 
-[Download Firmware Samsung Galaxy S10e SM-G970F](https://samfirm.shop/samsung/firmware/457725)
+[Download Firmware Samsung Galaxy S10e SM-G970F](https://samfirm.shop/samsung/firmware/457726)
