@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy Note 10 </stron
 
 [SM-N970W](https://samfirm.shop/samsung/model/SM-N970W)
 [N970WVLS7FUH5](https://samfirm.shop/samsung/pda/N970WVLS7FUH5)
-[Download Firmware Samsung Galaxy Note 10 SM-N970W](https://samfirm.shop/samsung/firmware/458530)
+[Download Firmware Samsung Galaxy Note 10 SM-N970W](https://samfirm.shop/samsung/firmware/458529)
