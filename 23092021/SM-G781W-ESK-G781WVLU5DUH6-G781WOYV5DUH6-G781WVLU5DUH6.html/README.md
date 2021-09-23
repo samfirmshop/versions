@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy S20 Fan Edition
 
 [SM-G781W](https://samfirm.shop/samsung/model/SM-G781W)
 [G781WVLU5DUH6](https://samfirm.shop/samsung/pda/G781WVLU5DUH6)
-[Download Firmware Samsung Galaxy S20 Fan Edition 5G SM-G781W](https://samfirm.shop/samsung/firmware/458424)
+[Download Firmware Samsung Galaxy S20 Fan Edition 5G SM-G781W](https://samfirm.shop/samsung/firmware/458425)
