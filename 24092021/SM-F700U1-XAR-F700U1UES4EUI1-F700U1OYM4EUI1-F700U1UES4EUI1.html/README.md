@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy Z Flip </strong
 
 [SM-F700U1](https://samfirm.shop/samsung/model/SM-F700U1)
 [F700U1UES4EUI1](https://samfirm.shop/samsung/pda/F700U1UES4EUI1)
-[Download Firmware Samsung Galaxy Z Flip SM-F700U1](https://samfirm.shop/samsung/firmware/459372)
+[Download Firmware Samsung Galaxy Z Flip SM-F700U1](https://samfirm.shop/samsung/firmware/459371)
