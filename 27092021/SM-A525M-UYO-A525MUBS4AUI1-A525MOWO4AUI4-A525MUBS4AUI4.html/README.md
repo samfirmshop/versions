@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung SSP </strong> ⭐ <str
 
 [SM-A525M](https://samfirm.shop/samsung/model/SM-A525M)
 [A525MUBS4AUI1](https://samfirm.shop/samsung/pda/A525MUBS4AUI1)
-[Download Firmware Samsung SSP SM-A525M](https://samfirm.shop/samsung/firmware/459563)
+[Download Firmware Samsung SSP SM-A525M](https://samfirm.shop/samsung/firmware/459562)
