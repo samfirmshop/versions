@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy S10e </strong> 
 
 [SM-G970W](https://samfirm.shop/samsung/model/SM-G970W)
 [G970WVLU6GUH5](https://samfirm.shop/samsung/pda/G970WVLU6GUH5)
-[Download Firmware Samsung Galaxy S10e SM-G970W](https://samfirm.shop/samsung/firmware/460619)
+[Download Firmware Samsung Galaxy S10e SM-G970W](https://samfirm.shop/samsung/firmware/460620)
