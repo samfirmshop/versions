@@ -4,4 +4,4 @@ Download the Samsung firmware for the âœ… <strong>Samsung Galaxy A50 </strong> â
 
 [SM-A505FN](https://samfirm.shop/samsung/model/SM-A505FN)
 [A505FNXXS9CUI3](https://samfirm.shop/samsung/pda/A505FNXXS9CUI3)
-[Download Firmware Samsung Galaxy A50 SM-A505FN](https://samfirm.shop/samsung/firmware/460097)
+[Download Firmware Samsung Galaxy A50 SM-A505FN](https://samfirm.shop/samsung/firmware/460098)
