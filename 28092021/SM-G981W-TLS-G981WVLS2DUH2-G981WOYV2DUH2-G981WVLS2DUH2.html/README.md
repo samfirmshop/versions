@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy S20 5G Canada <
 
 [SM-G981W](https://samfirm.shop/samsung/model/SM-G981W)
 [G981WVLS2DUH2](https://samfirm.shop/samsung/pda/G981WVLS2DUH2)
-[Download Firmware Samsung Galaxy S20 5G Canada SM-G981W](https://samfirm.shop/samsung/firmware/460504)
+[Download Firmware Samsung Galaxy S20 5G Canada SM-G981W](https://samfirm.shop/samsung/firmware/460503)
