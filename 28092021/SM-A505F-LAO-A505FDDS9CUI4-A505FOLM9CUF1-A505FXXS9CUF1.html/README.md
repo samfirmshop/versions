@@ -4,9 +4,9 @@ Download the Samsung firmware for the ✅ <strong>Galaxy A50 </strong> ⭐ <stro
 
 [SM-A505F](https://samfirm.shop/samsung/model/SM-A505F)
 [A505FDDS9CUI4](https://samfirm.shop/samsung/pda/A505FDDS9CUI4)
-[Download Firmware Galaxy A50 SM-A505F](https://samfirm.shop/samsung/firmware/460126)
+[Download Firmware Galaxy A50 SM-A505F](https://samfirm.shop/samsung/firmware/460127)
 <h2>Summary description:</h2>
 <p>Samsung Galaxy A50 SM-A505F. Display diagonal: 16.3 cm (6.4"), Display resolution: 1080 x 2340 pixels, Display type: SAMOLED. Processor frequency: 2.3 GHz. RAM capacity: 4 GB, Internal storage capacity: 128 GB. Rear camera resolution (numeric): 25 MP, Rear camera type: Triple camera. SIM card capability: Dual SIM. Battery capacity: 4000 mAh. Product colour: White. Weight: 166 g</p>
 
 
-[Download Firmware Galaxy A50 SM-A505F](https://samfirm.shop/samsung/firmware/460126)
+[Download Firmware Galaxy A50 SM-A505F](https://samfirm.shop/samsung/firmware/460127)
