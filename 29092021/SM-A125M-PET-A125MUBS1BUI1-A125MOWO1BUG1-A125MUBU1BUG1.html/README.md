@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung SSP </strong> ⭐ <str
 
 [SM-A125M](https://samfirm.shop/samsung/model/SM-A125M)
 [A125MUBS1BUI1](https://samfirm.shop/samsung/pda/A125MUBS1BUI1)
-[Download Firmware Samsung SSP SM-A125M](https://samfirm.shop/samsung/firmware/460973)
+[Download Firmware Samsung SSP SM-A125M](https://samfirm.shop/samsung/firmware/460972)
