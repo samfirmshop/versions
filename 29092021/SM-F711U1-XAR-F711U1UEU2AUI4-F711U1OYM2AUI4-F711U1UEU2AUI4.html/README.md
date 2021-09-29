@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung SSP </strong> ⭐ <str
 
 [SM-F711U1](https://samfirm.shop/samsung/model/SM-F711U1)
 [F711U1UEU2AUI4](https://samfirm.shop/samsung/pda/F711U1UEU2AUI4)
-[Download Firmware Samsung SSP SM-F711U1](https://samfirm.shop/samsung/firmware/460833)
+[Download Firmware Samsung SSP SM-F711U1](https://samfirm.shop/samsung/firmware/460832)
