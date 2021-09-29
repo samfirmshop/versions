@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung SSP </strong> ⭐ <str
 
 [SM-F926U1](https://samfirm.shop/samsung/model/SM-F926U1)
 [F926U1UEU1AUI4](https://samfirm.shop/samsung/pda/F926U1UEU1AUI4)
-[Download Firmware Samsung SSP SM-F926U1](https://samfirm.shop/samsung/firmware/461047)
+[Download Firmware Samsung SSP SM-F926U1](https://samfirm.shop/samsung/firmware/461046)
