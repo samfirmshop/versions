@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung SSP </strong> ⭐ <str
 
 [SM-A037M](https://samfirm.shop/samsung/model/SM-A037M)
 [A037MUBU1AUI2](https://samfirm.shop/samsung/pda/A037MUBU1AUI2)
-[Download Firmware Samsung SSP SM-A037M](https://samfirm.shop/samsung/firmware/462282)
+[Download Firmware Samsung SSP SM-A037M](https://samfirm.shop/samsung/firmware/462283)
