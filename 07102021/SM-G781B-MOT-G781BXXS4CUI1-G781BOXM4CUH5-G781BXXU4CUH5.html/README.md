@@ -4,9 +4,9 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy S20 Fan Edition
 
 [SM-G781B](https://samfirm.shop/samsung/model/SM-G781B)
 [G781BXXS4CUI1](https://samfirm.shop/samsung/pda/G781BXXS4CUI1)
-[Download Firmware Samsung Galaxy S20 Fan Edition 5G SM-G781B](https://samfirm.shop/samsung/firmware/463226)
+[Download Firmware Samsung Galaxy S20 Fan Edition 5G SM-G781B](https://samfirm.shop/samsung/firmware/463225)
 <h2>Summary description:</h2>
 <p>Samsung Galaxy S20 FE 5G SM-G781B. Display diagonal: 16.5 cm (6.5"), Display resolution: 2400 x 1080 pixels, Display type: SAMOLED. Processor frequency: 2.8 GHz, Processor family: Qualcomm Snapdragon, Processor model: 865. RAM capacity: 6 GB, RAM type: LPDDR5, Internal storage capacity: 128 GB. Rear camera resolution (numeric): 12 MP, Rear camera type: Triple camera. Operating system installed: Android 10.0. Battery capacity: 4500 mAh. Product colour: Navy. Weight: 190 g</p>
 
 
-[Download Firmware Samsung Galaxy S20 Fan Edition 5G SM-G781B](https://samfirm.shop/samsung/firmware/463226)
+[Download Firmware Samsung Galaxy S20 Fan Edition 5G SM-G781B](https://samfirm.shop/samsung/firmware/463225)
