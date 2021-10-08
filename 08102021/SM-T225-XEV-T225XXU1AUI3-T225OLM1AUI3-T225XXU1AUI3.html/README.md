@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung SSP </strong> ⭐ <str
 
 [SM-T225](https://samfirm.shop/samsung/model/SM-T225)
 [T225XXU1AUI3](https://samfirm.shop/samsung/pda/T225XXU1AUI3)
-[Download Firmware Samsung SSP SM-T225](https://samfirm.shop/samsung/firmware/463504)
+[Download Firmware Samsung SSP SM-T225](https://samfirm.shop/samsung/firmware/463505)
