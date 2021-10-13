@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy Z Fold2 5G </st
 
 [SM-F916U1](https://samfirm.shop/samsung/model/SM-F916U1)
 [F916U1UES2EUI2](https://samfirm.shop/samsung/pda/F916U1UES2EUI2)
-[Download Firmware Samsung Galaxy Z Fold2 5G SM-F916U1](https://samfirm.shop/samsung/firmware/464414)
+[Download Firmware Samsung Galaxy Z Fold2 5G SM-F916U1](https://samfirm.shop/samsung/firmware/464415)
