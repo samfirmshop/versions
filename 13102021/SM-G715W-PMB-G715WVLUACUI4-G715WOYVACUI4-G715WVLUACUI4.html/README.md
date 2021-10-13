@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy Xcover Pro </st
 
 [SM-G715W](https://samfirm.shop/samsung/model/SM-G715W)
 [G715WVLUACUI4](https://samfirm.shop/samsung/pda/G715WVLUACUI4)
-[Download Firmware Samsung Galaxy Xcover Pro SM-G715W](https://samfirm.shop/samsung/firmware/464725)
+[Download Firmware Samsung Galaxy Xcover Pro SM-G715W](https://samfirm.shop/samsung/firmware/464724)
