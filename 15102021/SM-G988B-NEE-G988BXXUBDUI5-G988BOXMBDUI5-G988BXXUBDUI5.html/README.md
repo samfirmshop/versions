@@ -4,9 +4,9 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy S20 Ultra 5G </
 
 [SM-G988B](https://samfirm.shop/samsung/model/SM-G988B)
 [G988BXXUBDUI5](https://samfirm.shop/samsung/pda/G988BXXUBDUI5)
-[Download Firmware Samsung Galaxy S20 Ultra 5G SM-G988B](https://samfirm.shop/samsung/firmware/465217)
+[Download Firmware Samsung Galaxy S20 Ultra 5G SM-G988B](https://samfirm.shop/samsung/firmware/465216)
 <h2>Summary description:</h2>
 <p>Samsung Galaxy S20 Ultra 5G SM-G988B. Display diagonal: 17.5 cm (6.9"), Display resolution: 3200 x 1440 pixels, Display type: Dynamic AMOLED. Processor frequency: 2.73 GHz, Processor family: Samsung Exynos, Processor model: 990. RAM capacity: 12 GB, Internal storage capacity: 128 GB. Rear camera resolution (numeric): 108 MP, Rear camera type: Quad camera. SIM card capability: Dual SIM. Operating system installed: Android 10.0. Battery capacity: 5000 mAh. Product colour: Grey. Weight: 220 g</p>
 
 
-[Download Firmware Samsung Galaxy S20 Ultra 5G SM-G988B](https://samfirm.shop/samsung/firmware/465217)
+[Download Firmware Samsung Galaxy S20 Ultra 5G SM-G988B](https://samfirm.shop/samsung/firmware/465216)
