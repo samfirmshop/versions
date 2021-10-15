@@ -4,9 +4,9 @@ Download the Samsung firmware for the âœ… <strong>Samsung Galaxy M11 </strong> â
 
 [SM-M115F](https://samfirm.shop/samsung/model/SM-M115F)
 [M115FXXU2BUI3](https://samfirm.shop/samsung/pda/M115FXXU2BUI3)
-[Download Firmware Samsung Galaxy M11 SM-M115F](https://samfirm.shop/samsung/firmware/465199)
+[Download Firmware Samsung Galaxy M11 SM-M115F](https://samfirm.shop/samsung/firmware/465200)
 <h2>Summary description:</h2>
 <p>Samsung Galaxy M11 SM-M115F. Display diagonal: 16.3 cm (6.4"), Display resolution: 720 x 1560 pixels, Display type: PLS. Processor frequency: 1.8 GHz. RAM capacity: 3 GB, Internal storage capacity: 32 GB. Rear camera resolution (numeric): 13 MP, Rear camera type: Triple camera. SIM card capability: Dual SIM. Battery capacity: 5000 mAh. Product colour: Blue. Weight: 197 g</p>
 
 
-[Download Firmware Samsung Galaxy M11 SM-M115F](https://samfirm.shop/samsung/firmware/465199)
+[Download Firmware Samsung Galaxy M11 SM-M115F](https://samfirm.shop/samsung/firmware/465200)
