@@ -4,9 +4,9 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy Tab S7 </strong
 
 [SM-T875](https://samfirm.shop/samsung/model/SM-T875)
 [T875XXS2BUJ1](https://samfirm.shop/samsung/pda/T875XXS2BUJ1)
-[Download Firmware Samsung Galaxy Tab S7 SM-T875](https://samfirm.shop/samsung/firmware/465650)
+[Download Firmware Samsung Galaxy Tab S7 SM-T875](https://samfirm.shop/samsung/firmware/465651)
 <h2>Summary description:</h2>
 <p>Samsung Galaxy Tab S7 SM-T875. Display diagonal: 27.9 cm (11"), Display resolution: 2560 x 1600 pixels. Internal storage capacity: 128 GB. Processor frequency: 1.8 GHz, Processor family: Qualcomm Snapdragon, Processor model: 865+. Internal memory: 6 GB. Rear camera resolution (numeric): 13 MP, Rear camera type: Dual camera, Front camera resolution (numeric): 8 MP, Front camera. Top Wi-Fi standard: Wi-Fi 6 (802.11ax). Card reader integrated. Weight: 500 g. Product colour: Silver</p>
 
 
-[Download Firmware Samsung Galaxy Tab S7 SM-T875](https://samfirm.shop/samsung/firmware/465650)
+[Download Firmware Samsung Galaxy Tab S7 SM-T875](https://samfirm.shop/samsung/firmware/465651)
