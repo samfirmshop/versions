@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy Note 10 </stron
 
 [SM-N970U1](https://samfirm.shop/samsung/model/SM-N970U1)
 [N970U1UEU7FUI4](https://samfirm.shop/samsung/pda/N970U1UEU7FUI4)
-[Download Firmware Samsung Galaxy Note 10 SM-N970U1](https://samfirm.shop/samsung/firmware/465923)
+[Download Firmware Samsung Galaxy Note 10 SM-N970U1](https://samfirm.shop/samsung/firmware/465924)
