@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy Note10+ 256GB U
 
 [SM-N975U1](https://samfirm.shop/samsung/model/SM-N975U1)
 [N975U1UEU7FUI4](https://samfirm.shop/samsung/pda/N975U1UEU7FUI4)
-[Download Firmware Samsung Galaxy Note10+ 256GB Unlocked SM-N975U1](https://samfirm.shop/samsung/firmware/465847)
+[Download Firmware Samsung Galaxy Note10+ 256GB Unlocked SM-N975U1](https://samfirm.shop/samsung/firmware/465848)
