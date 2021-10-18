@@ -4,9 +4,9 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy A10s </strong> 
 
 [SM-A107F](https://samfirm.shop/samsung/model/SM-A107F)
 [A107FXXU8CUI2](https://samfirm.shop/samsung/pda/A107FXXU8CUI2)
-[Download Firmware Samsung Galaxy A10s SM-A107F](https://samfirm.shop/samsung/firmware/465630)
+[Download Firmware Samsung Galaxy A10s SM-A107F](https://samfirm.shop/samsung/firmware/465631)
 <h2>Summary description:</h2>
 <p>Samsung Galaxy A10s SM-A107F. Display diagonal: 15.8 cm (6.2"), Display resolution: 720 x 1520 pixels, Display type: PLS. Processor frequency: 2 GHz. RAM capacity: 2 GB, Internal storage capacity: 32 GB. Rear camera resolution (numeric): 13 MP, Rear camera type: Dual camera. SIM card capability: Dual SIM. Battery capacity: 4000 mAh. Product colour: Red. Weight: 168 g</p>
 
 
-[Download Firmware Samsung Galaxy A10s SM-A107F](https://samfirm.shop/samsung/firmware/465630)
+[Download Firmware Samsung Galaxy A10s SM-A107F](https://samfirm.shop/samsung/firmware/465631)
