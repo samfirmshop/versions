@@ -4,9 +4,9 @@ Download the Samsung firmware for the ✅ <strong>Samsung SSP </strong> ⭐ <str
 
 [SM-A125F](https://samfirm.shop/samsung/model/SM-A125F)
 [A125FXXU1BUI3](https://samfirm.shop/samsung/pda/A125FXXU1BUI3)
-[Download Firmware Samsung SSP SM-A125F](https://samfirm.shop/samsung/firmware/466037)
+[Download Firmware Samsung SSP SM-A125F](https://samfirm.shop/samsung/firmware/466038)
 <h2>Summary description:</h2>
 <p>Samsung Galaxy A12 SM-A125F. Display diagonal: 16.5 cm (6.5"), Display resolution: 720 x 1600 pixels, Display type: PLS. Processor frequency: 2.3 GHz. RAM capacity: 4 GB, Internal storage capacity: 128 GB. Rear camera resolution (numeric): 48 MP, Rear camera type: Quad camera. Battery capacity: 5000 mAh. Product colour: Blue. Weight: 205 g</p>
 
 
-[Download Firmware Samsung SSP SM-A125F](https://samfirm.shop/samsung/firmware/466037)
+[Download Firmware Samsung SSP SM-A125F](https://samfirm.shop/samsung/firmware/466038)
