@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung SSP </strong> ⭐ <str
 
 [SM-G998W](https://samfirm.shop/samsung/model/SM-G998W)
 [G998WVLS4AUIP](https://samfirm.shop/samsung/pda/G998WVLS4AUIP)
-[Download Firmware Samsung SSP SM-G998W](https://samfirm.shop/samsung/firmware/466095)
+[Download Firmware Samsung SSP SM-G998W](https://samfirm.shop/samsung/firmware/466096)
