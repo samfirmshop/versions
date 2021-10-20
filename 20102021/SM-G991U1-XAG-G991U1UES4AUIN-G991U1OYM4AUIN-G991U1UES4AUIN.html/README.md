@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung SSP </strong> ⭐ <str
 
 [SM-G991U1](https://samfirm.shop/samsung/model/SM-G991U1)
 [G991U1UES4AUIN](https://samfirm.shop/samsung/pda/G991U1UES4AUIN)
-[Download Firmware Samsung SSP SM-G991U1](https://samfirm.shop/samsung/firmware/466720)
+[Download Firmware Samsung SSP SM-G991U1](https://samfirm.shop/samsung/firmware/466721)
