@@ -4,9 +4,9 @@ Download the Samsung firmware for the âœ… <strong>Samsung Galaxy A71 </strong> â
 
 [SM-A715F](https://samfirm.shop/samsung/model/SM-A715F)
 [A715FXXS6BUI1](https://samfirm.shop/samsung/pda/A715FXXS6BUI1)
-[Download Firmware Samsung Galaxy A71 SM-A715F](https://samfirm.shop/samsung/firmware/467174)
+[Download Firmware Samsung Galaxy A71 SM-A715F](https://samfirm.shop/samsung/firmware/467173)
 <h2>Summary description:</h2>
 <p>Samsung Galaxy A71 SM-A715F. Display diagonal: 17 cm (6.7"), Display resolution: 1080 x 2400 pixels, Display type: SAMOLED. Processor frequency: 2.2 GHz, Processor family: Qualcomm Snapdragon, Processor model: 730. RAM capacity: 6 GB, Internal storage capacity: 128 GB. Rear camera resolution (numeric): 64 MP, Rear camera type: Quad camera. SIM card capability: Dual SIM. Battery capacity: 4500 mAh. Product colour: Black. Weight: 183 g</p>
 
 
-[Download Firmware Samsung Galaxy A71 SM-A715F](https://samfirm.shop/samsung/firmware/467174)
+[Download Firmware Samsung Galaxy A71 SM-A715F](https://samfirm.shop/samsung/firmware/467173)
