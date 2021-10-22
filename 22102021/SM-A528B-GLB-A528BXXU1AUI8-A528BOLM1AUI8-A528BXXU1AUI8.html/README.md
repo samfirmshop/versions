@@ -4,4 +4,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung SSP </strong> ⭐ <str
 
 [SM-A528B](https://samfirm.shop/samsung/model/SM-A528B)
 [A528BXXU1AUI8](https://samfirm.shop/samsung/pda/A528BXXU1AUI8)
-[Download Firmware Samsung SSP SM-A528B](https://samfirm.shop/samsung/firmware/467275)
+[Download Firmware Samsung SSP SM-A528B](https://samfirm.shop/samsung/firmware/467274)
