@@ -4,9 +4,9 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy S10 Plus </stro
 
 [SM-G975F](https://samfirm.shop/samsung/model/SM-G975F)
 [G975FXXSDFUI5](https://samfirm.shop/samsung/pda/G975FXXSDFUI5)
-[Download Firmware Samsung Galaxy S10 Plus SM-G975F](https://samfirm.shop/samsung/firmware/467568)
+[Download Firmware Samsung Galaxy S10 Plus SM-G975F](https://samfirm.shop/samsung/firmware/467569)
 <h2>Summary description:</h2>
 <p>Samsung Galaxy S10+ SM-G975F. Display diagonal: 16.3 cm (6.4"), Display resolution: 3040 x 1440 pixels, Display type: Dynamic AMOLED. Processor frequency: 2.7 GHz, Processor family: Samsung Exynos, Processor model: 9820. RAM capacity: 8 GB, RAM type: LPDDR4X, Internal storage capacity: 512 GB. Rear camera resolution (numeric): 12 MP, Rear camera type: Triple camera. Operating system installed: Android 9.0. Battery capacity: 4100 mAh. Product colour: Black. Weight: 198 g</p>
 
 
-[Download Firmware Samsung Galaxy S10 Plus SM-G975F](https://samfirm.shop/samsung/firmware/467568)
+[Download Firmware Samsung Galaxy S10 Plus SM-G975F](https://samfirm.shop/samsung/firmware/467569)
