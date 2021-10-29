@@ -1,0 +1,7 @@
+<h2>Samsung Firmwares SM-A3050(CHC) A3050ZCU4CUJ3/A3050CHC4CUJ3/A3050ZCU4CUJ2</h2>
+Download the Samsung firmware for the ✅ <strong>Samsung Galaxy A40s </strong> ⭐ <strong>SM-A3050</strong> with product code <strong>CHC</strong> <strong> from China</strong>. This firmware has version number PDA <strong>A3050ZCU4CUJ3</strong> and CSC A3050CHC4CUJ3. The operating system of this firmware is Android R , with build date 2021-10-29. Changelist <strong>22602103</strong>.
+
+
+[SM-A3050](https://samfirm.shop/samsung/model/SM-A3050)
+[A3050ZCU4CUJ3](https://samfirm.shop/samsung/pda/A3050ZCU4CUJ3)
+[Download Firmware Samsung Galaxy A40s SM-A3050](https://samfirm.shop/samsung/firmware/469547)
