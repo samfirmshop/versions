@@ -1,0 +1,7 @@
+<h2>Samsung Firmwares SM-G398FN(XFA) G398FNXXSECUJ1/G398FNOJMECUJ2/G398FNXXSECUI6</h2>
+Download the Samsung firmware for the ✅ <strong>Samsung Galaxy XCover 4s </strong> ⭐ <strong>SM-G398FN</strong> with product code <strong>XFA</strong> <strong> from South Africa</strong>. This firmware has version number PDA <strong>G398FNXXSECUJ1</strong> and CSC G398FNOJMECUJ2. The operating system of this firmware is Android R , with build date 2021-10-27. Changelist <strong>21947640</strong>.
+
+
+[SM-G398FN](https://samfirm.shop/samsung/model/SM-G398FN)
+[G398FNXXSECUJ1](https://samfirm.shop/samsung/pda/G398FNXXSECUJ1)
+[Download Firmware Samsung Galaxy XCover 4s SM-G398FN](https://samfirm.shop/samsung/firmware/469507)
