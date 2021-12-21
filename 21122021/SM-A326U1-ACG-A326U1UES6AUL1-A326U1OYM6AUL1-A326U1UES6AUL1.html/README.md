@@ -3,4 +3,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung SSP </strong> ⭐ <str
 
 [SM-A326U1](https://samfirm.shop/samsung/model/SM-A326U1)
 [A326U1UES6AUL1](https://samfirm.shop/samsung/pda/A326U1UES6AUL1)
-[Download Firmware Samsung SSP SM-A326U1](https://samfirm.shop/samsung/firmware/483801)
+[Download Firmware Samsung SSP SM-A326U1](https://samfirm.shop/samsung/firmware/483800)
