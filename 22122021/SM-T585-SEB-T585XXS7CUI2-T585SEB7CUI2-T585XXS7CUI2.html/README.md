@@ -3,9 +3,9 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy Tab A⑥ </stro
 
 [SM-T585](https://samfirm.shop/samsung/model/SM-T585)
 [T585XXS7CUI2](https://samfirm.shop/samsung/pda/T585XXS7CUI2)
-[Download Firmware Samsung Galaxy Tab A⑥ SM-T585](https://samfirm.shop/samsung/firmware/484123)
+[Download Firmware Samsung Galaxy Tab A⑥ SM-T585](https://samfirm.shop/samsung/firmware/484122)
 <h2>Summary description:</h2>
 <p>Samsung Galaxy Tab A (2016) SM-T585. Display diagonal: 25.6 cm (10.1"), Display resolution: 1920 x 1200 pixels. Internal storage capacity: 32 GB. Processor frequency: 1.6 GHz. Internal memory: 2 GB. Rear camera resolution (numeric): 8 MP, Rear camera type: Single camera, Front camera resolution (numeric): 2 MP, Front camera. Top Wi-Fi standard: Wi-Fi 5 (802.11ac). Assisted GPS (A-GPS). Card reader integrated. Weight: 525 g. Operating system installed: Android 6.0. Product colour: White</p>
 
 
-[Download Firmware Samsung Galaxy Tab A⑥ SM-T585](https://samfirm.shop/samsung/firmware/484123)
+[Download Firmware Samsung Galaxy Tab A⑥ SM-T585](https://samfirm.shop/samsung/firmware/484122)
