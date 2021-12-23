@@ -3,9 +3,9 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy J6 Prime </stro
 
 [SM-J610FN](https://samfirm.shop/samsung/model/SM-J610FN)
 [J610FNXXU7CUH1](https://samfirm.shop/samsung/pda/J610FNXXU7CUH1)
-[Download Firmware Samsung Galaxy J6 Prime SM-J610FN](https://samfirm.shop/samsung/firmware/484450)
+[Download Firmware Samsung Galaxy J6 Prime SM-J610FN](https://samfirm.shop/samsung/firmware/484448)
 <h2>Summary description:</h2>
 <p>Samsung Galaxy J6+ SM-J610FN. Display diagonal: 15.2 cm (6"), Display resolution: 1480 x 720 pixels, Display type: TFT. Processor frequency: 1.4 GHz. RAM capacity: 3 GB, Internal storage capacity: 32 GB. Rear camera resolution (numeric): 13 MP, Rear camera type: Dual camera. SIM card capability: Single SIM. Operating system installed: Android 8.1. Battery capacity: 3300 mAh. Product colour: Red. Weight: 178 g</p>
 
 
-[Download Firmware Samsung Galaxy J6 Prime SM-J610FN](https://samfirm.shop/samsung/firmware/484450)
+[Download Firmware Samsung Galaxy J6 Prime SM-J610FN](https://samfirm.shop/samsung/firmware/484448)
