@@ -3,9 +3,9 @@ Download the Samsung firmware for the âœ… <strong>Samsung Galaxy M31 </strong> â
 
 [SM-M315F](https://samfirm.shop/samsung/model/SM-M315F)
 [M315FXXS2BUK2](https://samfirm.shop/samsung/pda/M315FXXS2BUK2)
-[Download Firmware Samsung Galaxy M31 SM-M315F](https://samfirm.shop/samsung/firmware/484806)
+[Download Firmware Samsung Galaxy M31 SM-M315F](https://samfirm.shop/samsung/firmware/484805)
 <h2>Summary description:</h2>
 <p>Samsung Galaxy M31 SM-M315F. Display diagonal: 16.3 cm (6.4"), Display resolution: 2340 x 1080 pixels, Display type: SAMOLED. Processor frequency: 2.3 GHz. RAM capacity: 6 GB, Internal storage capacity: 64 GB. Rear camera resolution (numeric): 64 MP, Rear camera type: Quad camera. SIM card capability: Dual SIM. Battery capacity: 6000 mAh. Product colour: Black. Weight: 191 g</p>
 
 
-[Download Firmware Samsung Galaxy M31 SM-M315F](https://samfirm.shop/samsung/firmware/484806)
+[Download Firmware Samsung Galaxy M31 SM-M315F](https://samfirm.shop/samsung/firmware/484805)
