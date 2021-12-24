@@ -3,4 +3,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy Xcover 5 </stro
 
 [SM-G398FN](https://samfirm.shop/samsung/model/SM-G398FN)
 [G398FNXXSECUL2](https://samfirm.shop/samsung/pda/G398FNXXSECUL2)
-[Download Firmware Samsung Galaxy Xcover 5 SM-G398FN](https://samfirm.shop/samsung/firmware/484982)
+[Download Firmware Samsung Galaxy Xcover 5 SM-G398FN](https://samfirm.shop/samsung/firmware/484983)
