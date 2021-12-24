@@ -3,4 +3,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung SSP </strong> ⭐ <str
 
 [SM-A225M](https://samfirm.shop/samsung/model/SM-A225M)
 [A225MUBU3AUJ4](https://samfirm.shop/samsung/pda/A225MUBU3AUJ4)
-[Download Firmware Samsung SSP SM-A225M](https://samfirm.shop/samsung/firmware/484776)
+[Download Firmware Samsung SSP SM-A225M](https://samfirm.shop/samsung/firmware/484777)
