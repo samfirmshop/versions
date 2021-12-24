@@ -3,9 +3,9 @@ Download the Samsung firmware for the ✅ <strong>Samsung SSP </strong> ⭐ <str
 
 [SM-A225F](https://samfirm.shop/samsung/model/SM-A225F)
 [A225FXXU3AUK2](https://samfirm.shop/samsung/pda/A225FXXU3AUK2)
-[Download Firmware Samsung SSP SM-A225F](https://samfirm.shop/samsung/firmware/484905)
+[Download Firmware Samsung SSP SM-A225F](https://samfirm.shop/samsung/firmware/484904)
 <h2>Summary description:</h2>
 <p>Samsung Galaxy SM-A225F. Display diagonal: 16.3 cm (6.4"), Display resolution: 720 x 1600 pixels, Display type: SAMOLED. Processor frequency: 2 GHz. RAM capacity: 4 GB, Internal storage capacity: 128 GB. Rear camera resolution (numeric): 48 MP, Rear camera type: Quad camera. SIM card capability: Dual SIM. Battery capacity: 5000 mAh. Product colour: White. Weight: 186 g</p>
 
 
-[Download Firmware Samsung SSP SM-A225F](https://samfirm.shop/samsung/firmware/484905)
+[Download Firmware Samsung SSP SM-A225F](https://samfirm.shop/samsung/firmware/484904)
