@@ -3,4 +3,4 @@ Download the Samsung firmware for the ✅ <strong>Samsung Galaxy Z Flip 5G (Unlo
 
 [SM-F707U1](https://samfirm.shop/samsung/model/SM-F707U1)
 [F707U1UES2DUL1](https://samfirm.shop/samsung/pda/F707U1UES2DUL1)
-[Download Firmware Samsung Galaxy Z Flip 5G (Unlocked) SM-F707U1](https://samfirm.shop/samsung/firmware/485526)
+[Download Firmware Samsung Galaxy Z Flip 5G (Unlocked) SM-F707U1](https://samfirm.shop/samsung/firmware/485524)
